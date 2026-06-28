@@ -1,4 +1,4 @@
-# Marcos Silva Lopes
+# Marcos Lopes Silva
 
 **Industrial Operations & Data Science**  
 Jundiaí, SP · [LinkedIn](https://linkedin.com/in/) · [Email](mailto:)
